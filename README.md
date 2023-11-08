@@ -12,6 +12,3 @@
 </p> 
 
 
-
-### Connect with Me :
-
